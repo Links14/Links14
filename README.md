@@ -88,6 +88,8 @@ B.A. Computer Science · Minor in Artificial Intelligence
 
 May 2025
 
+GPA: 3.4
+
 ---
 
 ## Contact
